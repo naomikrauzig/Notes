@@ -1,2 +1,2 @@
-# Naomi_portofolio
+# Naomi_portfolio
 Short overview 
